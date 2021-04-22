@@ -1,3 +1,3 @@
 # sumpf_viechs_quest
-### Hintergrundbild im Spiel:
+### Backgroundimage ingame by Annika Senger / Kroatien-Liebe:
 https://www.kroatien-liebe.com/naturpark-kopacki-rit/sumpf/
